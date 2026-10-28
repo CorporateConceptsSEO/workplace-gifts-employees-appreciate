@@ -2,6 +2,8 @@
 
 Generic gifts often end up forgotten in a drawer. The best [office gift ideas for employees](https://corporate-concepts.com/office-gift-ideas-for-employees/) add real value to the workday without stretching the budget.
 
+![Office Gift Ideas for Employees](https://raw.githubusercontent.com/CorporateConceptsSEO/workplace-gifts-employees-appreciate/main/Office%20Gift%20Ideas%20for%20employees.jpeg)
+
 ## What Do Employees Use Most Often?
 Staff tend to prefer compact desk plants, insulated bottles, cable organisers, and wellness kits to ordinary notebooks or pen sets.
 
